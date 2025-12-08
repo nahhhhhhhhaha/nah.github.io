@@ -15,7 +15,7 @@
 ---
 
 ## 📫 Contact Me
-📧 **Email:** myhuyen@example.com  
+📧 **Email:** hannahhuyen10@gmail.com  
 🐙 **GitHub:** [[github.com/nahhhhhhhhaha](https://github.com/nahhhhhhhhaha)  ]
 
 ---
